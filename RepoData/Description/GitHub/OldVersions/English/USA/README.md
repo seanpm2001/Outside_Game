@@ -1,1 +1,1 @@
-↪️🌍️🌎️↩️ A redirect to the /outside/ repositorh.
+↪️🌍️🌎️↩️ A redirect to the /outside/ repository.
